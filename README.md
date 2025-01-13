@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lupiverse
 - 👀 I’m interested in books 📖, anime and engineering :) 
-- 🌱 I’m currently learning a third language (italian 🇮🇹
+- 🌱 I’m currently learning a third language (italian) 🇮🇹
 - 💞️ I’m looking to collaborate on interesting nuclear projects! 
 - 📫 How to reach me: follow the spiders 
 - 😄 Pronouns: she/her 👧
